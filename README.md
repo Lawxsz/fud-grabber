@@ -1,6 +1,7 @@
 # FUD GRABBER
 
 https://t.me/prysmax
+https://discord.gg/g69Bv8fB
 Owner: @Lawxsz
 
  With Free Montly Trials! 
@@ -23,4 +24,5 @@ Owner: @Lawxsz
 ![image](https://github.com/Lawxsz/fud-grabber/assets/116668706/ad97869f-91b3-4734-8f0c-a5bbf6bdceba)
 
 https://t.me/prysmax
+https://discord.gg/g69Bv8fB
 Owner: @Lawxsz
