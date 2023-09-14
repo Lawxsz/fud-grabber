@@ -2,7 +2,7 @@
 
 https://t.me/prysmax
 https://discord.gg/g69Bv8fB
-Owner: @Lawxsz
+Owner t.me/Lawxsz
 
  With Free Montly Trials! 
 ![image](https://github.com/Lawxsz/fud-grabber/assets/116668706/b348c56e-e71f-491b-9416-391fd1f5b3f4)
